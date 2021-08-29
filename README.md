@@ -1,5 +1,5 @@
 ******contact me with any site issues******
 
-hosted at https://goodgamer78.xyz
+hosted at https://gamerguzzle.xyz
 
 sponge@boba.best
